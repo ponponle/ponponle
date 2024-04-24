@@ -4,8 +4,7 @@ https://walloftext.co/ponponle
 ari - she/him ||
 enfp i think I DONT KNWO it says on my strawpage rah. ||
 pjsk and mimic obsessed perhaps ||
-sorry i like ruikasa ||
-dni 20+
+sorry i like ruikasa
 
 
 
