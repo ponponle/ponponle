@@ -1,15 +1,12 @@
 https://walloftext.co/ponponle
 
 
-ari - she/him ||
-enfp i think I DONT KNWO it says on my strawpage rah. ||
-pjsk and mimic obsessed perhaps ||
-sorry i like ruikasa
+ari - she/him || i dont kmow how ppl make tgese pretty but idgaf 😹😹
 
 
 
+![image](https://github.com/ponponle/ponponle/assets/166126332/1fb0ce37-439e-4d1d-8765-9136d27782d8) 
 
-![IMG_5236](https://github.com/ponponle/ponponle/assets/166126332/48577860-f2ba-448d-bb32-444b6154648b)
 
  
  
@@ -20,4 +17,4 @@ sorry i like ruikasa
  
  
 
-art credit - pjmiyo
+art credit - GHOST (Housewife Radio)
