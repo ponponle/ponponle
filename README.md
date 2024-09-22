@@ -30,7 +30,7 @@ my favourite characters from those fandoms:
 
 * "uuafa" = unless ur a friend already
   
-  - adults (im a minor)
+  - 18+ (THIN ICE , ill prob see u as a sibling or something because 3 of my siblings r adults irl)
   - akihito fans
   - unpleasant x infected shippers (sorry)
   - okegom fans (uuafa)
