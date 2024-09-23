@@ -1,20 +1,22 @@
 my rentry is still a wip but uhhh ill continue it at some point. 
 so heres stuff thats not in it rn
 
+🩷 = im obsessed with this
+
 
 ..not in any specific order..
 
 
 my interests are :
-- object shows/comics/games (bfdi , objectified , myteardrop etc.)
-- the mimic (roblox)
+- object shows/comics/games (bfdi , objectified , myteardrop etc.) 🩷
+- the mimic (roblox) 🩷
 - judy (roblox)
-- get a snack at 4am (roblox)
+- get a snack at 4am (roblox) 🩷
 - todds breakfast adventure (roblox)
-- regretevator
-- the legend of zelda (botw/totk, specifically)
+- regretevator 
+- the legend of zelda (botw/totk, specifically) 🩷
 - ghost and pals
-- dress to impress
+- dress to impress 🩷
 
 my favourite characters from those fandoms:
 - gaty , brandy , divide-operator , literally any algebralien thats not 5, 8 or 14 (osc)
