@@ -1,44 +1,23 @@
-my rentry is still a wip but uhhh ill continue it at some point. 
-so heres stuff thats not in it rn
+hello um i act really weird around dveryone recently especially if you are someone i dont know/ friend of a friedn its not anything personal im just going through things wnd its having a huge toll on me so i recommend iwec/iwc (interact with extreme caution/care). and please dont get full on mad at me just talk to me calmly if ive made you upset because im less likely to reply to you
 
-🩷 = im obsessed with this
+also in general dont make or hint at any sexual/weird jokes towards me thanks
 
+pls dni:
+proship, stuff like that etc
+homophobic and racist people
+akihito uchiumi fans
+ppl who ship unpleasant x infected and you are obsessed with the ship (if we are friends alredy and u ship this then thats fine just dont mention it around me please)
 
-..not in any specific order..
+dniuid and/or dniuf: 
+okegommies (okegom fans)
+pjsk fans
+hazbin hotel/helluva boss fans
 
+iwec (sometimes dniuid) fourtwo haters. i really like fourtwo and if you hate it around me ill probably just explode or something idk just pls dont mention negativity about it near me unless its jokingly
+this also this counts with 4x or 2x (or 24x,, whatever other ships i like)
 
-my interests are :
-- object shows/comics/games (bfdi , objectified , myteardrop etc.) 🩷
-- the mimic (roblox) 🩷
-- judy (roblox)
-- get a snack at 4am (roblox) 🩷
-- todds breakfast adventure (roblox)
-- regretevator 
-- the legend of zelda (botw/totk, specifically) 🩷
-- ghost and pals
-- dress to impress 🩷
+!! if youre over 18 and we interact please do not be weird to me i am a minor
 
-my favourite characters from those fandoms:
-- gaty , brandy , divide-operator , literally any algebralien thats not 5, 8 or 14 (osc)
-- hirosa masashige , teiryu and enzukai (tm)
-- amazea (judy)
-- dummy , pizza person , nooby (gasa4)
-- todd , boo , eggbry, the squid hat guys, dummy (TBA)
-- infected , lampert , pest , scag (regv)
-- ..link??? , tulin (tloz)
-- say , arc (gnp)
-
-  dni :
-
-* "uuafa" = unless ur a friend already
-  
-  - 18+ (THIN ICE , ill prob see u as a sibling/guardian or something because 3 of my siblings r adults irl)
-  - akihito fans
-  - unpleasant x infected shippers (sorry)
-  - okegom fans (uuafa)
-  - hazbin hotel fans (uuafa)
-  - most pjsk fans (uuafa + unless i int with u first.)
- 
 
 
 ![GIF image](https://github.com/user-attachments/assets/509dc296-2d89-4978-af2d-b028ef537faa)
