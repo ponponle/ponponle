@@ -21,3 +21,6 @@ this also this counts with 4x or 2x (or 24x,, whatever other ships i like)
 
 
 ![GIF image](https://github.com/user-attachments/assets/509dc296-2d89-4978-af2d-b028ef537faa)
+
+
+four yiur gayass better make a github or ill eat you./silly
