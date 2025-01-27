@@ -24,3 +24,4 @@ this also this counts with 4x or 2x (or 24x,, whatever other ships i like)
 
 
 four yiur gayass better make a github or ill eat you./silly
+update: thanks. Guys how do i get him off my screen
