@@ -1,3 +1,5 @@
+SCHOOL IS STARTING FOR ME PLS DONT EXPECT ME TO BE ONLINE A LOT ANYMORE LIKE I USUALLY AM😢 !!!!!
+
 hello um i act really weird around dveryone recently especially if you are someone i dont know/ friend of a friedn its not anything personal im just going through things wnd its having a huge toll on me so i recommend iwec/iwc (interact with extreme caution/care). and please dont get full on mad at me just talk to me calmly if ive made you upset because im less likely to reply to you
 
 also in general dont make or hint at any sexual/weird jokes towards me thanks
