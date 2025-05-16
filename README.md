@@ -25,4 +25,4 @@ this also this counts with 4x or 2x (or 24x,, whatever other ships i like)
 ![GIF image](https://github.com/user-attachments/assets/509dc296-2d89-4978-af2d-b028ef537faa)
 
 
-my pfp isnt me trying to act all edgy i promise😭
+
